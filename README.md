@@ -76,7 +76,7 @@ Email: lorisduray@gmail.com.com
 LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/loris-duray/)
 
 **Abby Wang**  
-Email: your.email@example.com  
-LinkedIn: [Your LinkedIn Profile](https://www.linkedin.com)
+Email: abbyting111@gmail.com
+LinkedIn: [Abby Wong](https://www.linkedin.com/in/abbywong5524/)
 
 
